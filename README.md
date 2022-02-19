@@ -4,4 +4,7 @@ A Pastelaria Vareju vem por meio desta apresentar uma lista com os nossos preço
 
 **Muitos Produtos**
 
+**Muitos Produtos**
 **Salgados**
+
+> Bolos e Salgados
